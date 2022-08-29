@@ -1,1 +1,1 @@
-README.md
+![구딩 copy](https://user-images.githubusercontent.com/77870077/187223761-c19d0863-9c26-4906-8c36-a2a210c053d5.jpg)
